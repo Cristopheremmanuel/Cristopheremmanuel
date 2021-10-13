@@ -1,2 +1,2 @@
-hola soy cristopher emmanuel castill0
-me gusta jugar videojuegos
+hola soy Cristopher Emmanuel Castillo 🏰 Huchim
+Me gusta jugar videojuegos
